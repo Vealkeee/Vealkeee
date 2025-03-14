@@ -1,3 +1,3 @@
-![Rushia_FI2-750x392](https://github.com/Vealkeee/Vealkeee/assets/154665608/0e55fe8e-03d4-4c3c-b64c-af1598ac4f1e)
+![how-to-be-a-good-owner-of-a-headgehog-6](https://github.com/user-attachments/assets/ab5ab85f-17b9-4607-a309-7966c6f22241)
 
-                                        ❝𝙃𝙞, 𝙞'𝙢 𝙫𝙚𝙖𝙡𝙠𝙚𝙚𝙚. 𝘼𝙞 𝙥𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙚𝙧 𝙞𝙣 𝙛𝙪𝙩𝙪𝙧𝙚❝
+                                                      "Fashion hedgehog is here."
