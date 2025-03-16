@@ -1,3 +1,4 @@
-![how-to-be-a-good-owner-of-a-headgehog-6](https://github.com/user-attachments/assets/ab5ab85f-17b9-4607-a309-7966c6f22241)
+![b85c92b87a9af83b6ed2d4e02d526d02](https://github.com/user-attachments/assets/7b445abd-5ef3-4666-9b3c-8cd345f7b67b)
 
-                                                      "Fashion hedgehog is here."
+
+                                     "Fashion hedgehog is here."
