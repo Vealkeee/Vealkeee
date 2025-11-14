@@ -1,9 +1,8 @@
 Hello there, I'm <b>Vealke</b>.
+<hr>
 
-<b>There's what I like the most:</b>
+<b>About me:</b>
 
-<ul>
-  <li>Mathematics</li>
-  <li>Artifical Intelligence</li>
-  <li>Solving problems</li>
-<ul>
+I'm a student, inspired by the world which has created the math itself<br>
+And also inspired by a programmer which made my way into the AI stuff.<br>
+I'm not native English speaker, country is annonymous.
