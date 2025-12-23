@@ -31,4 +31,4 @@
 
 <hr>
 
-<h1><a href="https://x.com/Vealke">Vealke</a> WEB developer. Really want to get to the AI topic asap</h1>
+<h1><a href="https://x.com/Vealke">Vealke</a> WEB developer. Really want to get to the AI topic asap !</h1>
